@@ -1,0 +1,1 @@
+# rita-jiri-diary
